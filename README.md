@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-MY name is OSADOLOR-OGHOGHO(She,Miss) Data Scientist and Analyst,I am passionate self learning scientist and analyst who loves to solve problem,identify trends and patterns there by knowing how to make informed decision for future purpose via data.
+MY name is OSADOLOR-OGHOGHO a Data Scientist and Analyst,I am passionate self learning scientist and analyst who loves to solve problem,identify trends and patterns there by knowing how to make informed decision for future purpose via data.
 
 
 
